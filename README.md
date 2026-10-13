@@ -1,1 +1,1 @@
-<img width="800" height="450" alt="github_readme-ezgif com-optimize" src="https://github.com/user-attachments/assets/3bea873d-bc1a-451d-aafa-44c18a18db3d" />
+<img width="1920" height="1080" alt="ZXfinx_readme1-ezgif com-optimize" src="https://github.com/user-attachments/assets/eb4c238b-6ee2-429b-9c88-5050b5df578d" />
