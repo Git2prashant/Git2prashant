@@ -1,1 +1,1 @@
-<img width="1920" height="1080" alt="ZXfinx_readme1-ezgif com-optimize" src="https://github.com/user-attachments/assets/eb4c238b-6ee2-429b-9c88-5050b5df578d" />
+<img width="960" height="540" alt="prashant-pixel-earth" src="https://github.com/user-attachments/assets/5dc4e3dc-53e1-400f-a698-dbe442bd87c3" />
